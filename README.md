@@ -32,11 +32,14 @@ Not required
 - Twitter: [https://twitter.com/Ewoskyx]
 - LinkedIn: [https://www.linkedin.com/in/ewoskyx]
 
-👤 **Evren Ersoy**
+👤 **Kalolo Chola Lemba**
 
-- GitHub: [https://github.com/Ewoskyx]
-- Twitter: [https://twitter.com/Ewoskyx]
-- LinkedIn: [https://www.linkedin.com/in/ewoskyx]
+- GitHub: [@KayLemba](https://github.com/KayLemba)
+- Twitter: [@King-Kaylo1](https://twitter.com/King_Kaylo1) 
+- LinkedIn: [@kalolo-lemba](https://www.linkedin.com/in/https://www.linkedin.com/in/kalolo-lemba)
+
+
+
 
 ## Show your support
 
